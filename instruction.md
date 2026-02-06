@@ -1,2 +1,2 @@
 lee chanwoo handsome
-lee chanwoo ugly
+lee chanwoo tall
